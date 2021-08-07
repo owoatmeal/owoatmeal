@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @owoatmeal
+- 👀 I’m interested in your mother
+- 🌱 I’m currently learning how to please your mother
+- 💞️ I’m looking to collaborate on-top of your mother
+- 📫 How to reach me on discord oatmeal#9942
